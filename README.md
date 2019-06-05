@@ -1,0 +1,1 @@
+Find meaning of any word with Sosyska app. Provides word definition, synonyms and examples.
